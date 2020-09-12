@@ -1,0 +1,2 @@
+# teromo
+Kolopor nomhertomi
